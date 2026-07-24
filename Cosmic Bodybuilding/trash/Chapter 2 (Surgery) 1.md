@@ -1,0 +1,2 @@
+ - The Ocean vision fractures into puzzle like pieces and disappears off into the world.
+ - reduce the gore factor, gloss over the violence (Strangely as his fingers went inside his skin there was no blood) (done)

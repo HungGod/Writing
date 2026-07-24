@@ -1,0 +1,2 @@
+- Change the sky fragment to a puzzle piece
+- Make the Mind Shadow a black hole

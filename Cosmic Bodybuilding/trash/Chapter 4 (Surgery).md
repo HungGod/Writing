@@ -1,0 +1,3 @@
+ - Reduce the sermon a tad
+ - Make their final exchange more weighty
+ - Grammar and clarity stuff

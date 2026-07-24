@@ -1,0 +1,2 @@
+ - Lessen some of the father stuff and make him stingier to seed chapter 5 better
+ - Seed the redeemer (Brit), an image of warmth when he looked at the Temple, a young girl who stood out like a sun among shadow holding a basket infinitely kind and caring.

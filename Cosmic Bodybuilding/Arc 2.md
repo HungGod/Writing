@@ -1,0 +1,11 @@
+What to do
+ - Hints into the surreal world of demons, and the introduction of the mentor demon beaver Manduka
+ - More information about the Founder of the Temple of the Peakless Mountain and his incredible feats of strength
+ - Greater divide and eventual split up between Ged and the Redeemer
+ - Signs of relationship growing between Ged and the Femme Fatale
+ - Children born from the biceps of bodybuilders, the fracturing of Ged and Gore's relationship.
+ - Ged growing into madness in the fight against ridding the Mind Shadow from his body.
+ - Temple undercurrents are growing
+ - The growth of Ged's illicit empire and the mirroring of to the steps of the Founder
+ - The Governor and the battle for power in the rocky slice, (idk how exactly this will play out)
+ - Ged's ascension into Planet core physique realm

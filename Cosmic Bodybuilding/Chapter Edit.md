@@ -1,0 +1,1 @@
+Most strained through burpee-like drills—chests slamming against stone, bodies snapping upward in explosive rhythm.
