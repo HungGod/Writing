@@ -13,3 +13,5 @@ The father let out a stretching yawn.
 "It's time. Let's go back."
 
 The father son pair descended the green hill. 
+
+Ged looked up at his father, he felt something 
