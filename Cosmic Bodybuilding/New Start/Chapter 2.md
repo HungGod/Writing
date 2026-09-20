@@ -14,4 +14,4 @@ The father let out a stretching yawn.
 
 The father son pair descended the green hill. 
 
-Ged looked up at his father, he felt something 
+Ged looked up at his father, he felt something stirring in his mind.
